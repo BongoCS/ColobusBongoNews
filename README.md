@@ -1,1 +1,1 @@
-Little sneak peek for everyone, work on a brand new game mode has begun! Stay tuned for more updates on Bongo news, and join the discord at: discord.gg/colobus
+Still debating whether to add Horror or not. If we add it, we are afraid everyone will play horror, and wont play any new updates. More info soon.
