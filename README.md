@@ -1,1 +1,2 @@
-Still debating whether to add Horror or not. If we add it, we are afraid everyone will play horror, and wont play any new updates. More info soon.
+Still debating whether to add Horror or not. Also, if you want to comepete in a FREE BANANA COMPETITION, join the discord listed below, and ping Bongo in general saying you are interested.
+discord.gg/colobus
