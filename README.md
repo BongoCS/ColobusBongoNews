@@ -1,5 +1,3 @@
-BANANA COMPETITION ROUND 1/5 STARTING NOW!
-
-CODE IS BANANAPRIZE
+Horror is coming....
 
 discord.gg/colobus
