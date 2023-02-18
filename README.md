@@ -1,2 +1,5 @@
-Banana Competition is today, at 3:10PM EST join code BANANAPRIZE to receive details for banana competition
+BANANA COMPETITION ROUND 1/5 STARTING NOW!
+
+CODE IS BANANAPRIZE
+
 discord.gg/colobus
