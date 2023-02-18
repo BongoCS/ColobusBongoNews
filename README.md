@@ -1,2 +1,2 @@
-Also, if you want to comepete in a FREE BANANA COMPETITION, join the discord listed below, and ping Bongo in general saying you are interested.
+Banana Competition os today, at 3:10PM join code BANANAPRIZE to receive details for banana competition
 discord.gg/colobus
