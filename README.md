@@ -1,3 +1,3 @@
-The walls are deteriorating, the tunnel is getting deeper. Be prepared, it will be the end of times.
+The time is ticking, be prepared.
 
 discord.gg/colobus
