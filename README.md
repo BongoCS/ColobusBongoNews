@@ -1,3 +1,3 @@
-The mist rolls in, and with it comes a new kind of terror. Are you brave enough to face the unknown?
+The walls are deteriorating, the tunnel is getting deeper. Be prepared, it will be the end of times.
 
 discord.gg/colobus
